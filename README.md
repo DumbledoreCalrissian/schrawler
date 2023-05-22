@@ -1,2 +1,2 @@
 # schrawler
-/ˈsrɔːlə/
+/ˈskrɔːlə/
